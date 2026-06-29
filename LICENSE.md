@@ -1,4 +1,4 @@
-# 
+# Exclusivo CorelDRAW efectos para Mac OS | VIP CorelDRAW efectos para PC Windows. Con maquetación multipágina y procesamiento RAW — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
